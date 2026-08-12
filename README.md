@@ -1,2 +1,0 @@
-# zamiahdX.github.io
-general
